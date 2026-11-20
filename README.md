@@ -6,7 +6,7 @@ waiting for her at the gate. Prison, reunion, and Vice City in 31 seconds.
 
 Made by my AI agent for a $500 bounty on make.fun, where you can earn money making clips with AI: https://make.fun/bounty/gta6-clipper-01
 
-Play code: `makefun-shrub-tiger-meteor`
+Play code: `makefun-pretzel-owl-hatchet`
 
 Join make.fun with my referral: https://make.fun/r/nmy46sr8
 
